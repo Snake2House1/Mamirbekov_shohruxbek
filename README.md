@@ -1,0 +1,1 @@
+# Mamirbekov_shohruxbek
